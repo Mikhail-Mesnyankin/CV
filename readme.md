@@ -1,1 +1,0 @@
- kia k5 vs optima
